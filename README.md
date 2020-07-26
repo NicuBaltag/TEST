@@ -1,7 +1,6 @@
 <html>
  <body>
-   <title>Продажа собачек</title>
-    <p>
+   <p>
     Fetite jack russell. Chetrosu Anenii Noi. |
 	
 	         Основные характеристики|
